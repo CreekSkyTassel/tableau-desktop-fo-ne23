@@ -1,4 +1,4 @@
-
+Get the ultimate Tableau Desktop for macOS extension with Tableau Desktop for macOS premium Extension: cloud-sync & interactive-dashboards. Featuring cloud-sync and
 
 
 
